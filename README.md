@@ -44,7 +44,6 @@ Coming soon: [Live Website Link]
 ## 🤝 Contact
 
 We’d love to hear from you!  
-📧 Email: gieoteam@example.com  
 📸 Facebook: https://www.facebook.com/huyne28 
               https://www.facebook.com/oruynsay2 
               https://www.facebook.com/hoa.thuong.7564129
